@@ -1,1 +1,1 @@
-# MyMusicPrivacy
+# Privacy Policy
